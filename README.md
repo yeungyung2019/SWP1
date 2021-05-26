@@ -1,2 +1,2 @@
-20195304	JU yeungyung
+JU yeungyung:20195304
 kookmin Univ.SW dept.
